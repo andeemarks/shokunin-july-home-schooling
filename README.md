@@ -1,0 +1,1 @@
+# shokunin-july-home-schooling
